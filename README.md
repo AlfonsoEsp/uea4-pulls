@@ -1,15 +1,12 @@
 # uea4-pulls
 
 
+*Baby Taurus*  
 goku le gana  
-
-  
-        
-        
 *Soy un pollito de colores, fingiendo ser un gallo de pelea*  
 
 
-**Ya me ventanearon**
+**Ya me ventanearon**  
 
 _Mi nombre es Hanna y la última canción que escuché es Mic check de Cornelius_  
 
@@ -26,3 +23,4 @@ holaaaa :3 tqm
 lol  
 _18032005  
 **Camila no pone atención**
+
