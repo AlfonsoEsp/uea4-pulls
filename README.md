@@ -1,5 +1,11 @@
 # uea4-pulls
 
+  
+    
+      
+        
+*Soy un pollito de colores, fingiendo ser un gallo de pelea*  
+
 
 **Ya me ventanearon**
 
@@ -18,5 +24,3 @@ holaaaa :3 tqm
 lol  
 _18032005  
 **Camila no pone atención**
-
-
